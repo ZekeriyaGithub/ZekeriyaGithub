@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Zekeriya
+- 👀 I’m interested in coding
+- 🌱 I'm also learning to codeing to
+- 📫 You can contact me at the following address
+- zekeriyaomergok@gmail.com
